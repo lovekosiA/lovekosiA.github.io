@@ -53,6 +53,7 @@ Zài jiàn
 
 
 
+**SI IDOL TRAVIS PALA TO IH**
 
 
 ![TRAVIS](https://scontent.fdvo2-2.fna.fbcdn.net/v/t39.30808-6/264122057_1086283421911873_2886460392285338080_n.jpg?_nc_cat=105&ccb=1-7&_nc_sid=174925&_nc_ohc=nRT-9GxUQJYAX-QyYtx&_nc_oc=AQnjFyrPAKL3bxy9dBjCbdIFbn5-CujQne-NuzDkSdKGNgeln-5J2TCN-31cquBAHjQ&_nc_ht=scontent.fdvo2-2.fna&oh=00_AfDS5P111T_TEPLu0c2l8EC-aEMmFGUxVspXjSpkld_JGw&oe=63C4315F)
@@ -80,5 +81,3 @@ Zài jiàn
 
 
 
-
-![M](https://sites.google.com/site/a2zlovetips/_/rsrc/1342346969406/love---tips-the-a-to-z-of-love/Love-A.jpg?height=320&width=320)
